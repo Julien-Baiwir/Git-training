@@ -1,2 +1,2 @@
 Benvenudo my amigo
-Estupido
+Estupido sombrero!
